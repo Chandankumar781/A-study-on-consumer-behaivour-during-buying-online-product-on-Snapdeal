@@ -1,1 +1,1 @@
-# A-study-on-consumer-behaivour-during-buying-online-product-on-Snapdeal
+# A-study-on-consumer-behaviour-during-buying-online-product-on-Snapdeal
